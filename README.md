@@ -8,7 +8,7 @@ Boas vindas ao meu perfil 💙
 
 - Utilizar JavaScript
 
-Você pode entrar em contato comigo 🐬
+Você pode entrar em contato comigo 💻
 
 0000110453289xsp@al.educacao.sp.gov.br @Isabela2a
 
